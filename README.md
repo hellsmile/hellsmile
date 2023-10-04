@@ -15,4 +15,4 @@
 <p align="center"> i dont roleplay, even w the whole 'sighs' 'sniffles' etc thing im not ACTUALLY roleplaying
 
 
-<p align="center"> dni if u lovemail tanjiro, hanako, osamu, or chika. i love them more than u
+<p align="center"> dni if u lovemail tanjiro, shinigami, osamu, or chika. i love them more than u
