@@ -6,6 +6,8 @@
   
 <p align="center"> im always free to c+h, u dont need to ask or anything. i love cuddles
 
+<p align="center"> i dont block ppl so if u cant see me URE the one who hid me
+
 <p align="center"> if i leave randomly im most likely drained and will be back later or my phone died
 
   
