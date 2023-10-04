@@ -1,4 +1,5 @@
-### Hi there 👋
+![](https://media.discordapp.net/attachments/1095650668787810307/1159036353531617280/image1.gif?ex=651e6c38&is=651d1ab8&hm=598f0b3d2401dc54635fc3a6e3649ed9275e30a4a0cf3a0447641aa0f6d1d7ba&)
+### 
 
 <!--
 **hellsmile/hellsmile** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
