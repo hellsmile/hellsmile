@@ -1,6 +1,6 @@
 ![](https://media.discordapp.net/attachments/1095650668787810307/1159048494984744991/trigger-world.gif?ex=651e7787&is=651d2607&hm=574676141f2a58ea9c50a4c05932c9a7c8a0bb6a9695e7811557af9ce3f9a887&)
 
-<p align="center"> <img width="200" src="http://material-bread.org/logo-shadow.svg" alt="Material Bread logo">
+<p align="center"> <img width="150" src="https://media.discordapp.net/attachments/1095650668787810307/1159055552442290196/Untitled1183_20231004041227.png?ex=651e7e19&is=651d2c99&hm=973b6619ee976e9e4a3c78c1851a220eef2f29375b1956951a034c82ac47d793&" alt="Material Bread logo">
 
 ---
 ### <p align="center"> help
