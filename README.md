@@ -10,5 +10,14 @@
 
 <p align="center"> if i leave randomly im most likely drained and will be back later or my phone died
 
-  
-<p align="center"> dni if u think i love tanjiro more than me
+<p align="center"> im not a srs person so almost everything i say is a guaranteed joke
+
+<p align="center"> i dont roleplay, even w the whole 'sighs' 'head in hands' etc im not ACTUALLY roleplaying
+
+
+<p align="center"> -
+
+<p align="center"> i DISPISE zennezu so if im in my me(zenitsu) skin dont talk about nezuko around me if all ure gonna do is mention how im a simp n stuff (aimed)
+
+
+<p align="center"> dni if u lovemail tanjiro, hanako, osamu, or chika. i love them more than u
