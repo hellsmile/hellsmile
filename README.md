@@ -1,4 +1,6 @@
-![](https://media.discordapp.net/attachments/1095650668787810307/1159036353531617280/image1.gif?ex=651e6c38&is=651d1ab8&hm=598f0b3d2401dc54635fc3a6e3649ed9275e30a4a0cf3a0447641aa0f6d1d7ba&)
+![](https://media.discordapp.net/attachments/1095650668787810307/1159048494984744991/trigger-world.gif?ex=651e7787&is=651d2607&hm=574676141f2a58ea9c50a4c05932c9a7c8a0bb6a9695e7811557af9ce3f9a887&)
+
+---
 ### 
 
 <!--
