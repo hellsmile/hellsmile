@@ -15,9 +15,4 @@
 <p align="center"> i dont roleplay, even w the whole 'sighs' 'head in hands' etc im not ACTUALLY roleplaying
 
 
-<p align="center"> -
-
-<p align="center"> i DISPISE zennezu so if im in my me(zenitsu) skin dont talk about nezuko around me if all ure gonna do is mention how im a simp n stuff (aimed)
-
-
 <p align="center"> dni if u lovemail tanjiro, hanako, osamu, or chika. i love them more than u
