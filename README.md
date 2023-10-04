@@ -6,7 +6,7 @@
   
 <p align="center"> im always free to c+h, u dont need to ask or anything. i love cuddles
 
-<p align="center"> if i leave the game im most likely drained and will be back later
+<p align="center"> if i leave randomly im most likely drained and will be back later or my phone died
 
   
 <p align="center"> dni if u think i love tanjiro more than me
