@@ -10,9 +10,9 @@
 
 <p align="center"> if i leave randomly im most likely drained and will be back later or my phone died
 
-<p align="center"> im not a srs person so almost everything i say is a guaranteed joke
+<p align="center"> im not a very srs person so almost everything i say is a guaranteed joke
 
-<p align="center"> i dont roleplay, even w the whole 'sighs' 'head in hands' etc im not ACTUALLY roleplaying
+<p align="center"> i dont roleplay, even w the whole 'sighs' 'sniffles' etc thing im not ACTUALLY roleplaying
 
 
 <p align="center"> dni if u lovemail tanjiro, hanako, osamu, or chika. i love them more than u
